@@ -11,7 +11,7 @@ I don't know whether or not this will line break for me or if it will go off int
 
 It blows me away that I wasn't learning this stuff at JWU. It seems almost devious or intentionally detrimental to not show the students something like this and familiarize them with it early on. This is how every student should be handing in work forever. I don't care if it takes longer to learn how to use, if the teacher creates a template for the homework then students could submit it in the same format every time and it would be easy to grade and make the work look better too. It is also easier to use that Microsoft Word and faster due to templating and other layout tools. I just have to learn how to use them. 
 
-Oh well. I should go back to sleep for a little while. Any progress is more progress than you were making at home, playing games and sleeping the day away. At least now you have something to show for time spent and it will be a little bit more impressive than a fake number going up. 
+Oh well. I should go back to sleep for a little while. Any progress is more progress than I was making at home, playing games and sleeping the day away. At least now I have something to show for time spent and it will be a little bit more impressive than a fake number going up. 
 
 Signing off, 
 
